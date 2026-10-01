@@ -3,7 +3,7 @@
 **Economist · Data analysis for macro, payments and the external sector**
 MSc candidate, World Political Economy (UFABC) · BSc Economics & Humanities (UFABC) · ex-Macro Analyst, Banco Daycoval (2018–2024)
 
-📍 São Paulo, Brazil · 🌐 [Portfolio](https://afcastro.github.io) · ✉️ afg.castro@outlook.com
+📍 São Paulo, Brazil · 🌐 [Portfolio](https://afcastro.github.io) · ✉️ afg.gracio@gmail.com
 
 ---
 
